@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Competitive programming**
 
-- 📫 How to reach me **adityaraghav_ug@ece.nits.ac.in**
+- 📫 How to reach me **raghav.placement1822@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
